@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently **studying at National School Of Applied Sciences Oujda**
 
-- 📫 How to reach me **nahariimane@gmail.com**
+- 📫 How to reach me **nahariseomaniak@gmail.com**
 
 - ⚡  **work hard in silence, let your success be your noise**
 
